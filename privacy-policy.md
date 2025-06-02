@@ -13,4 +13,4 @@
 
    ## 4. Contact Information
    For any questions regarding your account or tokens, please contact:
-   [Your Contact Email]
+   [nagineniyashwanth90@gmail.com]
